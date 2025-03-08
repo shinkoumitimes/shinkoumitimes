@@ -32,6 +32,7 @@ My faves;
  - Eiji (SD) ((obviously..))
  - Haxxor bunny / Bronie (Hi3rd)
  - Noiz (DMMD)
+ - Silver Wolf (Hsr)
  - Sparkle (Hsr)
  - Blade (Hsr)
  - Honorable mention, Virus (DMMD)
