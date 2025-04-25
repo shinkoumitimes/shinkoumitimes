@@ -18,7 +18,8 @@ I do not have a dni, and I'd love it if anyone interacted with me! Though, I blo
  - Roblox Myths
  - Dandy's world (HEAVY on this)
  - Forsaken / Phighting / trud (?)
- This doesnt apply to when I am in roleplays because I literally have to interact w/ u, I promise if u are in a rp with me, see this, and are on this list you can interact because I wouldn't want the rp dying because I refuse to talk to someone...
+
+This doesnt apply to when I am in roleplays because I literally have to interact w/ u, I promise if u are in a rp with me, see this, and are on this list you can interact because I wouldn't want the rp dying because I refuse to talk to someone...
  I have nothing against you *if* you like these things, but I generally have bad experiences with these fandoms and would prefer not interacting with them. That and or I just find the fandom annoying and don't want to end up telling u to shut up because thats rude, but I am genuinely horrible at keeping to myself so PLEASE do not interact with me outside of roleplays if you like these things.
 
 #
