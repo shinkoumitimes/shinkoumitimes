@@ -26,6 +26,7 @@ I have nothing against you *if* you like these things, but I generally have bad 
 #
 
 As of now, I am mainly fixated on
+ - Sweet pool
  - Slow Damage
  - DRAMAtical Murder
  - Togainu No Chi
