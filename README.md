@@ -9,7 +9,7 @@ Haaaaaaaaai I'm Ren, if ur reading this u prob came from ponytown, if not then w
 
 I'm totally a major fujoshi, if u don't like that then just hide me, but just know I do not want u and ur ugly ass bf cuz ur gay, sorry
 
-I am agender and aroace, I use they/them pronouns, and I am a bit autistic. I love visual novels, anything gross, and pokemon games! I do like more stuff than that, but I really cannot list that off the top of my head.. It's totally boring anyways! I'm not getting into that.
+I am agender and aroace, I use they/them pronouns, and I am a bit autistic—someone told me to kill myself because of this part, so since I'm not allowed to be sarcastic, **I am clinically diagnosed with autism. Don't know why I'm not allowed to make jokes anymore, but maybe I should add tone tags to this because some people clearly can't get the message that I AM autistic**. I love visual novels, anything gross, and pokemon games! I do like more stuff than that, but I really cannot list that off the top of my head.. It's totally boring anyways! I'm not getting into that.
 
 I do not have a dni, and I'd love it if anyone interacted with me! Though, I block very freely and if you annoy me or weird me out then ur getting hidden LOL
  
