@@ -21,6 +21,7 @@ I do not have a dni, and I'd love it if anyone interacted with me! Though, I blo
  - Crk (crob is the only cookie run based fandom I'd prefer interacting with)
 
 This doesnt apply to when I am in roleplays because I literally have to interact w/ u, I promise if u are in a rp with me, see this, and are on this list you can interact because I wouldn't want the rp dying because I refuse to talk to someone...
+
 I have nothing against you *if* you like these things, but I generally have bad experiences with these fandoms and would prefer not interacting with them. That and or I just find the fandom annoying and don't want to end up telling u to shut up because thats rude, but I am genuinely horrible at keeping to myself so PLEASE do not interact with me outside of roleplays if you like these things.
 
 #
@@ -47,9 +48,9 @@ My faves;
 
 If you scrolled this far down, then hi lol why did you read through this.
 
-Aand, if you're wondering why my skins might look a little scuffed when it comes to brightness, it's because I usually have my phone brightness set to half and I end up thinking my colors are pretty dark. Most of the time, they are not. I may fix it one day, but honestly I'm too lazy for that, so.. Just bear with way too bright skin on my skins for now.
 
-My strawpage is linked, if you wanna say anything. Drawings on strawpage are down, buuuttt if they get fixed then I'll link something dedicated to any art I'm sent! Like a google slides or something, with my own input with every slide. I'll also leave answers to any questions I get there too lol.
+My strawpage is linked, if you wanna say anything. I'll also leave answers to any questions or drawings I get on a seperate repository (that as of now, doesn't exist). Also, if you're just gonna tell me to kill myself then I probably wont respond unless youre saying it because of something stupid. 
+
 ***Lovingly signed, Ren.***
 
  (P.S, i am way too serious with this half the time i never even use grammar... literally every other word is a spelling mistake, idk why im so into this. WHOOPS!)
