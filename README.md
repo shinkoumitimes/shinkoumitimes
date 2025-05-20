@@ -17,7 +17,7 @@ I do not have a dni, and I'd love it if anyone interacted with me! Though, I blo
  - Hazbin Hotel / Helluva Boss
  - Roblox Myths
  - Dandy's world (HEAVY on this)
- - Forsaken / Phighting / trud (?)
+ - Any roblox based fandom in general (hi felix this does NOT apply to you)
  - Crk (crob is the only cookie run based fandom I'd prefer interacting with)
 
 This doesnt apply to when I am in roleplays because I literally have to interact w/ u, I promise if u are in a rp with me, see this, and are on this list you can interact because I wouldn't want the rp dying because I refuse to talk to someone...
