@@ -5,7 +5,7 @@
   - <ins>Takasato downturn has led to infighting, sources say</ins>
   #
 ## $${\color{lightblue}All\ about\ me!}$$
-Haaaaaaaaai I'm Ren, if ur reading this u prob came from ponytown, if not then where did u find me lol this was meant for ponytown (idrgaf, read if u want), so heres everything about me!
+Haaaaaaaaai I'm seth, if ur reading this u prob came from ponytown, if not then where did u find me lol this was meant for ponytown (idrgaf, read if u want), so heres everything about me!
 
 I'm totally a major fujoshi, if u don't like that then just hide me, but just know I do not want u and ur ugly ass bf cuz ur gay, sorry
 
@@ -27,19 +27,22 @@ I have nothing against you *if* you like these things, but I generally have bad 
 #
 
 As of now, I am mainly fixated on
- - Sweet pool
+ - Lamento -Beyond the Void-
  - Slow Damage
  - DRAMAtical Murder
  - Togainu No Chi
- - Honkai Impact 3rd
- - D4DJ
+ - Sweet pool
+ - Room no.9
  - Nikke: Goddess of Victory
 
 My faves;
  - Eiji (SD) ((obviously..))
- - Haxxor bunny / Bronie (Hi3rd)
+ - Haxxor bunny / Bronie (Hi3)
  - Noiz (DMMD)
  - Silver Wolf (Hsr)
+ - Seiji Azumi (Rn9)
+ - Rai (Lamento BTV)
+ - Leaks (Lamento BTV)
  - Sparkle (Hsr)
  - Blade (Hsr)
  - Honorable mention, Virus (DMMD)
@@ -51,6 +54,6 @@ If you scrolled this far down, then hi lol why did you read through this.
 
 My strawpage is linked, if you wanna say anything. I'll also leave answers to any questions or drawings I get on a seperate repository (that as of now, doesn't exist). Also, if you're just gonna tell me to kill myself then I probably wont respond unless youre saying it because of something stupid. 
 
-***Lovingly signed, Ren.***
+***Lovingly signed, Seth.***
 
  (P.S, i am way too serious with this half the time i never even use grammar... literally every other word is a spelling mistake, idk why im so into this. WHOOPS!)
