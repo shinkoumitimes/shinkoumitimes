@@ -29,7 +29,7 @@ I have nothing against you *if* you like these things, but I generally have bad 
 As of now, I am mainly fixated on
  - Lamento -Beyond the Void-
  - Slow Damage
- - DRAMAtical Murder
+ - Ensemble Stars!!
  - Togainu No Chi
  - Sweet pool
  - Room no.9
@@ -52,7 +52,7 @@ My faves;
 If you scrolled this far down, then hi lol why did you read through this.
 
 
-My strawpage is linked, if you wanna say anything. I'll also leave answers to any questions or drawings I get on a seperate repository (that as of now, doesn't exist). Also, if you're just gonna tell me to kill myself then I probably wont respond unless youre saying it because of something stupid. 
+My strawpage is under construction but I'm still gonna leave it there LOL I can't bother to remove it
 
 ***Lovingly signed, Seth.***
 
