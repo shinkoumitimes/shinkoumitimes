@@ -1,3 +1,5 @@
+<p align="center"> <img src= "https://komarev.com/ghpvc/?username=your-github-username&color=ff69b4&style=plastic&abbreviated=true&label=inaviews" alt="inaviews" /> 
+  
 <p align="center">
   <img width="500" height="460" src="https://i.postimg.cc/N0QLrBrR/Untitled645-20251209010152-(1).png">
 </p>
