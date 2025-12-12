@@ -27,3 +27,5 @@ i dont have nything against kids i just dont prefer having anyone younger than m
 added on discord... im alsopicky with who i wanna be friends with so if you like
 
 the same stuff as me ill be more open to being friends :)
+
+(busy = afk Ok?)
